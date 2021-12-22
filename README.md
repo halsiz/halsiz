@@ -3,7 +3,7 @@
 > There is nothing special about me. I like dealing with Linux, UI Design, CSS. I also like to translate websites in my spare time.
 
 ![](https://cyber.dabamos.de/88x31/gnu-linux.gif) ![](https://cyber.dabamos.de/88x31/linux-directory.gif) ![](https://cyber.dabamos.de/88x31/microsoft_stop.gif) ![](https://cyber.dabamos.de/88x31/rainbow_bev.gif)
-![](https://anlucas.neocities.org/wmp.gif)
+![](https://anlucas.neocities.org/wmp.gif) ![](https://buttonwall.neocities.org/animegay.gif)
 > Also i love to use AutoCAD, Adobe Xd, Adobe Illustrator and Figma.
 
 ![](https://web.archive.org/web/20090801041229/http://hk.geocities.com/kayansocute/posline-hana.gif)
