@@ -1,4 +1,3 @@
-## Hi, I'm inci, Welcome to my GitHub Page. ![](https://web.archive.org/web/20090821135814/http://geocities.com/Heartland/Acres/7046/cutecat.gif)
 ![](https://web.badges.world/badges/operated/fedora_powered.png) ![](https://web.badges.world/badges/programs/linux80x15.png) ![](https://web.badges.world/badges/blogs/pride2.gif) ![](https://web.badges.world/badges/music/radiohead.gif) ![](https://web.badges.world/badges/blogware/hatenadiary.png) ![](https://web.badges.world/badges/food/pepsi.png)
 > There is nothing special about me. I like dealing with Linux, UI Design, CSS. I also like to translate websites in my spare time.
 
